@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @pavan5352
+- 👀 I’m interested in coding for fun and laziness.
+- 🌱 I’m currently learning Data science and web development 
+- 💞️ I’m looking to collaborate on Learning and creating simple code for automating average user's life.
+- 📫 How to reach me insta @pavanrocky_5352
+- ⚡ Fun fact: I'm surprising nice person.
