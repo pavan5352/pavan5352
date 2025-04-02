@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning Data science and web development 
 - 💞️ I’m looking to collaborate on Learning and creating simple code for automating average user's life.
 - 📫 How to reach me insta @pavanrocky_5352
-- ⚡ Fun fact: I'm surprising nice person.
+- ⚡ Fun fact: I have a million ideas in pipeline. None of them are simple. 
